@@ -1,4 +1,4 @@
-## leu a bíblia hoje? 📖
+## Leu a bíblia hoje? 📖
 
 Só Jesus salva. ❤️‍🔥
 
