@@ -1,6 +1,7 @@
 ## leu a bíblia hoje? 📖
 
 Só Jesus salva. ❤️‍🔥
+Tudo com Jesus, nada sem Maria! 💙📿
 
 
 
